@@ -1,0 +1,1 @@
+# yolonas_jar_lid_defect_inspection
